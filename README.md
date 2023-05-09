@@ -12,7 +12,7 @@ Mrigasira karti starts between the first/second week ie, 8th June normally in Te
 
 The main crops cultivated in kharif season are Paddy, all varieties of Millets, all varieties of  Pulses and Jowar which requires a moderate/normal rainfall for better yield.
 
-The farmers of Telangana and Andhra States will be waiting with expection of normal and moderate rainfall which will help them for sowing the seeds in Mrigasira karti with the onset of monsoon in June every year.
+The farmers of Telangana and Andhra States will be waiting with expectation of normal and moderate rainfall which will help them for sowing the seeds in Mrigasira karti with the onset of monsoon in June every year.
 
 # Contents
 
